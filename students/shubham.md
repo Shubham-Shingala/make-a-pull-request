@@ -1,5 +1,5 @@
-# Love Babbar
+# Shubham Shingala
 
-## btech baki he 
+## btech baki he , 2nd year running 
 
-## Youtube
+## c,c++,java,python,html,css etc..
